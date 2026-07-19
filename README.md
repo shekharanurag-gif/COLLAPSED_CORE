@@ -1,0 +1,1 @@
+# COLLAPSED_CORE
